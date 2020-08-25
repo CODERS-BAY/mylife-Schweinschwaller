@@ -38,7 +38,7 @@ cad software Eagle & AutoCAD escad
 |||
 | ------ | ----------- |
 | German | native |
-| English | fluently |
+| English | good |
 
 ## __INTERESTS__
 Tactical and action-packed multiplayer games such as Warframe, Endless Space, the Total War series and others<br />Pen and Paper: D&D and Shadowrun
