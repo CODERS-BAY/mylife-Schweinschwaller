@@ -42,5 +42,3 @@ cad software Eagle & AutoCAD escad
 
 ## __INTERESTS__
 Tactical and action-packed multiplayer games such as Warframe, Endless Space, the Total War series and others<br />Pen and Paper: D&D and Shadowrun
-
-TEST
